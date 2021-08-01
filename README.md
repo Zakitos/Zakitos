@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Zakitos
+- 👀 I’m interested in computer sciences, especially programming. 
+- 🌱 I’m currently learning computer sciences, networks and telecommunications
+- 📫 How to reach me ? Per Mail at Zakaria.aboham@gmail.com
